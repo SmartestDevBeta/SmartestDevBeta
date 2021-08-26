@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @SmartestDevBeta
+- 🕹 I like play "Minecraft"(Java Edition And Bedrock Editon)
+- 🌱 I’m currently learning "Tricks For Minecraft"
